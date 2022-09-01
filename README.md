@@ -1,5 +1,7 @@
 2015に発売された。
 
+[Asobikata](https://youtu.be/o2DvVTNkGvc?t=39)
+
 # Kikai
 
 [Car](https://www.reddit.com/r/Besiege/comments/wjnzd7/anybody_else_have_that_one_machine_they_get_in/)
