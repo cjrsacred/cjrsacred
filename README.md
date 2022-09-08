@@ -24,7 +24,7 @@
 
 [A-10/B-2](https://www.bilibili.com/video/BV1is411B77L?share_source=copy_web&vd_source=4ad754697eb6b44ba0fe17f25b853b5f&t=719)
 
-[Tori?](https://youtu.be/m9Ze6twapSM)
+[Tori?](https://youtu.be/m9Ze6twapSM?t=40)
 
 # Seibutsu
 
